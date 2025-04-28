@@ -7,4 +7,5 @@ Current interests are physical and digital arts but I'll go down just about any 
 If I'm jacking something up please feel free to tell my how I'm in the wrong; I have no idea what I'm doing.
 
 Pronouns: he/him
+
 Instagram: https://instagram.com/sandys.signs/
